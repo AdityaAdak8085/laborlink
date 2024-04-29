@@ -1,2 +1,2 @@
 # laborlink
-connect ,colaborate and explore
+connect ,colaborate and explore!
